@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![Alt Text](https://thumbs.gfycat.com/AnimatedMedicalHorseshoebat-size_restricted.gif)
+
 <!--
 **so3nksen/so3nksen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
